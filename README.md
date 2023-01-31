@@ -24,5 +24,5 @@ Mi objetivo principal es el de muchos, fijar un objetivo y con el interés de ap
 
 ¡Implementa tu carrera, tus habilidades y haz crecer tu conocimiento, mientras te diviertes!
 
-Únete a la comunidad para mantenerte al día.
+
 
